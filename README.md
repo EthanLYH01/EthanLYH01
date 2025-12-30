@@ -4,4 +4,5 @@
 -Wish to learn more to get a job
 -Malaysian
 -Hell Nah
+-Fuck this shit
 
